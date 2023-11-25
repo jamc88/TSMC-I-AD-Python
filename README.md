@@ -20,3 +20,7 @@ Código de acceso: tFh3n@P2
 SEMANA 2 CLASE 2
 https://uammx.zoom.us/rec/share/pmPQR__JFnN1hog_4Owf9Gupf_noH6UQUzVPUsAa_YwqMijCEbo096cSHNKyF_iJ.pDOcTuM7iFM5_yE7 
 Código de acceso: 7r*E2YhN
+
+SEMANA 2 CLASE 3
+https://uammx.zoom.us/rec/share/sYLh4llIbiyFo9WpqsbWRTvY0pHqyMsq-wTxQf7xWpuFV1fLPXZR7Bg13PRF1T1q.5LLZq42OdXUx75_q 
+Código de acceso: +iDQy17j
