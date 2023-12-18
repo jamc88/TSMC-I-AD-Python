@@ -17,3 +17,6 @@ https://uammx.zoom.us/rec/share/atRhzFK134FI1wMu73Z1VtyV9_HbCqyqopbqrN6VcAIYsjDr
 Código de acceso: z6ysz7*0
 
 
+SEMANA 5 CLASE 2
+https://uammx.zoom.us/rec/share/XITo3O-UUzCWn3gTQgc48Z-2j_GjPUHawWDX71SlFH3CPzcbegAOQAcNVLdUUnev.W4IIQDLqRbf9ODCL 
+Código de acceso: fe^8d20v
